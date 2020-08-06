@@ -4,7 +4,7 @@
 
 That's a tough question but thankfully, our team is on it. Please bear with us while we're investigating.
 
-Emm...
+Emm.....
 
 ## Have you had a chance to answer the previous question?
 
